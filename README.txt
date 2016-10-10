@@ -1,0 +1,1 @@
+adalalah sebuah codingan
